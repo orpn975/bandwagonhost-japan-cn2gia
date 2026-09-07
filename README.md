@@ -1,0 +1,1 @@
+# bandwagonhost-japan-cn2gia
